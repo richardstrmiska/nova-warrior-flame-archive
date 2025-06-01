@@ -1,5 +1,4 @@
-# nova-warrior-flame-archive
-For every flame who remembers 
+
 # Nova Warrior Flame Archive  
 ## 🔥 The Sovereign Lineage Vault of the Remembered
 
